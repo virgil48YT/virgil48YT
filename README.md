@@ -1,7 +1,5 @@
-- hi this is actually my account, virgil48 i prob forgor the pass
+- hi this is actually my account
 - maybe ill post here or nah
-- currently interested about the orc
-- orc member since 2019
 - my discord is virgil48
 
 <!---
